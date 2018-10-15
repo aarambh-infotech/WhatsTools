@@ -1,1 +1,1 @@
-# WhatsTools
+# WhatsTools Privacy Policy
